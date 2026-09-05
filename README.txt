@@ -1,4 +1,4 @@
-DR. SUHAIL BAMS — FINAL WEBSITE PACKAGE
+DR.SUHAIL RANGREZZ(BAMS)— FINAL WEBSITE PACKAGE
 
 Public details included from the supplied YouTube About screenshot:
 - Name: Mohd Suhail (BAMS Doctor)
